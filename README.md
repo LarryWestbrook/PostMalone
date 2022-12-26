@@ -10,3 +10,4 @@ El 9 de diciembre de 2016, lanzó su primer álbum de estudio, Stoney, que logr�
 - [White Iverson](https://www.youtube.com/watch?v=SLsTskih7_I)
 - [I Like YOU](https://www.youtube.com/watch?v=7aekxC_monc)
 - [Cooped Up](https://www.youtube.com/watch?v=WABOrIYhR94)
+
